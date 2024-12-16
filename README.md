@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TTV-Fluttershy
 - 👀 Coding
-- 🌱 CyberSecurity Student
+- 🌱 Flight school Student
 - 💞️ Working to help comunity 
 - 📫 Ethan456789123@gmail.com
 
